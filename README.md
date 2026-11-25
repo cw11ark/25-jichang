@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：五大运营商BGP与IPLC动态优化，暂时只支持自家客户端。**
 >
-> 👉 **[官网注册](https://inv01.ffaff.cc/register?aff=dSbodxlj)** · 建议从 Basic Plan 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://i01.ffaff.cc/register?aff=Z9crzRfx)** · 建议从 Basic Plan 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -67,7 +67,7 @@
 
 ## 注册
 
-👉 **[前往闪狐云注册页面](https://inv01.ffaff.cc/register?aff=dSbodxlj)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往闪狐云注册页面](https://i01.ffaff.cc/register?aff=Z9crzRfx)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
